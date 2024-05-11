@@ -1,1 +1,1 @@
-## ElegyEntertainment is a company making a secret game 👀
+💥 A company making a secret game about things. 
